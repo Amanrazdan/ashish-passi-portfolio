@@ -3,20 +3,16 @@
   "palette": "blue",
   "header": {
     "title": "Ashish Passi",
-    "tagline": "Minimal and clean blog theme",
+    "tagline": "Put a tagline here",
     "logo_img": "images/logo.png",
     "bg_img": "images/header-bg.jpg",
     "has_nav": true,
     "has_social": true
   },
   "footer": {
-    "content": "&copy; Stackbit-Fjord. All rights reserved.",
+    "content": "&copy;Ashish Passi. All rights reserved.",
     "links": [
-      {
-        "text": "Made with Stackbit",
-        "url": "https://www.stackbit.com",
-        "new_window": true
-      }
+
     ]
   }
 }
