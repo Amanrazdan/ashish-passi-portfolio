@@ -6,7 +6,7 @@ subtitle: The style guide provides you with a blueprint of default post and page
 img_path: images/style-guide.jpg
 menus:
   main:
-    title: Style Guide
+    title: Interests
     weight: 3
 template: page
 
