@@ -11,7 +11,7 @@ excerpt: Start with the intent to change the world. Check. Bring purpose to ever
 hide_header: true
 
 ---
-July 2018
+**It was July 2018.**
 
 It had been a few months of pondering. Where will the next fulfillment at work come from? What would the next wayfaring challenge replete with learning, growth and joy be!
 
@@ -26,4 +26,20 @@ An unknown man, to me, in a different part of the world, at the peak of his many
 
 Manoj and I met through a common friend. Who was either having a moment of clairvoyance or vacuousness.
 
-The idea of Twimbit emerged. The name itself a little later. Love at the first earshot!
+**August 2018**
+
+I knew we live in a strange world.
+
+A high achiever and a wayfarer with a different north. We shook hands. 
+
+We were high!
+
+The concoction was the intent to create and deliver real value for individuals and businesses.
+
+Stranger things have happened. 
+
+![](/images/pic 2.jpg)
+
+**September 2018**
+
+Twimbit. A name to our idea emerged. Love at the first earshot!
