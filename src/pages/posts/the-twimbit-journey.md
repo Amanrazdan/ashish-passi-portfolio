@@ -99,5 +99,18 @@ We thought the new year brought with her a gift of clarity.
 * An aspirational profile
 
 3. Develop Yourself
-   1. 360 Assessment by industry/function
-   2. Find aspirational opportunity and purpose
+
+* 360 Assessment by industry/function
+* Find aspirational opportunity and purpose
+
+Lovely, lets kick on with this now! Looks like there is meaningful business in there somewhere!
+
+**Feb 2018**
+
+Let's go seek!
+
+* Team
+* Idea Validation
+* Business
+
+![](/images/hunting-season-game-spotting-2THLRWS.jpg)
