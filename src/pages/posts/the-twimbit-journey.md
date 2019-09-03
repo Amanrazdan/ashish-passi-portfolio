@@ -52,4 +52,22 @@ What? How?
 
 Ummmm...
 
-October 2018
+**October 2018**
+
+Let's start with a blockchain enabled digital locker to help store all their verified career and education records.
+
+Hold on, what?
+
+You are listening but not hearing.
+
+I heard that before.
+
+So, blockchain what?
+
+Yeah, that.
+
+Spend weeks figuring out the use cases and features.
+
+Figure out it's a noble cause but it's too late.
+
+**Nov 2018** 
