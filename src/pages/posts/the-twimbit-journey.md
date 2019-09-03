@@ -97,13 +97,13 @@ We thought the new year brought with her a gift of clarity.
    * All your career records stored in a verified digital locker
 2. Market Yourself
 
-* Have a voice into the future
-* An aspirational profile
+* An individual web page to express yourself
+* 360 assessment to showcase your strengths
 
 3. Develop Yourself
 
-* 360 Assessment by industry/function
-* Find aspirational opportunity and purpose
+* An aspirational profile
+* Find purpose in what you do
 
 Lovely, lets kick on with this now! Looks like there is meaningful business in there somewhere!
 
@@ -128,3 +128,43 @@ That's the guy we want our technology team built around, I thought.
 Where do I find someone like him?
 
 Steve Blank was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye. 
+
+The 'heatmap' in what prospective customers shared was the most intense around ' an aspirational profile to find your purpose'!
+
+People could relate with that!
+
+But that was the third part of our value proposition after a digi locker, 
+
+**Mar 2018**
+
+The Techstar Weekend is approaching soon from the 10th-12th. 
+
+A 60 second pitch to the community to begin with. 7 out of 35 pitches were to be shortlisted. They would team up and work on those 7 ideas for a whole weekend!
+
+I'm driving there a little harebrained. It felt normal! 
+
+What was I going to pitch in 60 seconds?
+
+The market validation till last evening was pointing to something different from our thinking of the last couple of months.
+
+To help you Own Your Career, we were breeding Manage yourself, Market yourself and Develop yourself. The voice of the customer was the loudest around 'Develop yourself' !
+
+![](/images/woman-driving-and-texting-on-mobile-smartphone-PWKJ57U.jpg)
+
+It was a nervous drive that Friday evening to the event. I was thinking about the weekend already. After not clearing the 60 second pitch
+
+But, it still had to be delivered.
+
+Let's take a punt.
+
+From a product that was a combination of digi locker- webpage - aspirational profile - to a product that was An aspirational profile ro find true purpose and meaning in work!
+
+That had to be fit into 60 seconds. Practice while driving. 
+
+My technology friend, was also here to represent his idea. It just so happened, ours was selected and his wasn't in the pruning of 35 to 7.
+
+Now that I had made it past the first round, it made sense to stay. My tech friend and 3 other strangers (who had come with their ideas too) joined forces to work through the weekend on our product that we christened **purposeFULL.ai.**
+
+Lord behold, we won that weekend challenge. My tech friend displaying tremendous commitment and achievement orientation.
+
+We brought with us the title, heaps of confidence and an acquaintance turned friend for life.
