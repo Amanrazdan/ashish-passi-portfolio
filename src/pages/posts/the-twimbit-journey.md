@@ -11,3 +11,12 @@ excerpt: Start with the intent to change the world. Check. Bring purpose to ever
 hide_header: true
 
 ---
+July 2018
+
+It had been a few months of pondering. Where will the next fulfillment at work come from? What would the next wayfaring challenge replete with learning, growth and joy be!
+
+They say, be careful in what you wish for.
+
+Yeah right!
+
+An unknown man, to me, in a different part of the world, at the peak of his many professional powers, was searching for a![](/images/Pic Blog 1.jpg)
