@@ -8,7 +8,7 @@ content_img_path: "/images/contact.jpg"
 excerpt: Start with the intent to change the world. Check. Bring purpose to everyone.
   Check. Ok great! So where do we start? Blank. Who the hell do you think you are?
   Uncheck.
-hide_header: true
+hide_header: false
 
 ---
 **It was July 2018.**
