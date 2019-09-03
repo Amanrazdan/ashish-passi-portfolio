@@ -49,27 +49,29 @@ So let's move it!
 
 What? How?
 
-Ummmm...
+* We learn to break our sense of entitlement
+* We learn to be focused and sharp
+* We reinvent ourselves
+
+Ok. But....
 
 **October 2018**
 
-Let's start with a blockchain enabled digital locker to help store all their verified career and education records.
+Give power back to the people. 
 
-Hold on, what?
+Own Your Career everyone!
 
-You are listening but not hearing.
+Let's start with a blockchain enabled digital locker to help store all the verified career and education records. 
 
-I heard that before.
+Help people manage themselves better to take charge of their career.
 
-So, blockchain what?
+Noble thought people, but unfortunately you have already missed the last bus to this destination.
 
-Yeah, that.
+This just wasn't novel or enough.
 
-Spend weeks figuring out the use cases and features.
+Keep Digging!
 
-Only to discover we were late entrants in that market.
-
-Figure out it's a noble cause but it's too late.
+ a ekil sdnuSomkknnkjh
 
 ![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)
 
@@ -168,3 +170,21 @@ Now that I had made it past the first round, it made sense to stay. My tech frie
 Lord behold, we won that weekend challenge. My tech friend displaying tremendous commitment and achievement orientation.
 
 We brought with us the title, heaps of confidence and an acquaintance turned friend for life.
+
+**April 2018**
+
+Have we nailed it yet?
+
+Far from it, sonny! 
+
+It's a long winding path through the woods! 
+
+![](/images/overgrown-boardwalk-CF2L6AN.jpg)
+
+The various rounds of customer feedback and our innovations was moving purposeFull.ai towards a portal for job opportunities. This was not something that excited us boundless!
+
+Knock! Knock!
+
+Whose there?
+
+Time.
