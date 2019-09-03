@@ -21,7 +21,6 @@ Yeah right!
 
 An unknown man, to me, in a different part of the world, at the peak of his many professional powers, was searching for the next right move for him.
 
-  
 ![](/images/Pic Blog 1.jpg)
 
 Manoj and I met through a common friend. Who was either having a moment of clairvoyance or vacuousness.
@@ -30,13 +29,13 @@ Manoj and I met through a common friend. Who was either having a moment of clair
 
 I knew we live in a strange world.
 
-A high achiever and a wayfarer with a different north. We shook hands. 
+A high achiever and a wayfarer with a different north. We shook hands.
 
 We were high!
 
 The concoction was the intent to create and deliver real value for individuals and businesses.
 
-Stranger things have happened. 
+Stranger things have happened.
 
 ![](/images/pic 2.jpg)
 
@@ -70,4 +69,24 @@ Spend weeks figuring out the use cases and features.
 
 Figure out it's a noble cause but it's too late.
 
-**Nov 2018** 
+![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)![](/images/pic 3.jpg)
+
+**Nov-Dec 2018**
+
+Our slogan to the world - Own Your Career. 
+
+A career built on purpose and aspiration.
+
+What's more important? 
+
+What you have already done in life or what you are going to next? 
+
+Disrupt LinkedIn.
+
+Bring trust back. 
+
+Jan 2018
+
+We thought the new year brought with her a gift of clarity.
+
+![](/images/diving-man-PZXBXH5 (1).jpg)
