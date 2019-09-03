@@ -67,9 +67,11 @@ Yeah, that.
 
 Spend weeks figuring out the use cases and features.
 
+Only to discover we were late entrants in that market.
+
 Figure out it's a noble cause but it's too late.
 
-![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)![](/images/pic 3.jpg)
+![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)
 
 **Nov-Dec 2018**
 
@@ -114,3 +116,11 @@ Let's go seek!
 * Business
 
 ![](/images/hunting-season-game-spotting-2THLRWS.jpg)
+
+In a start up incubator, where I used to work as a co-worker, I observed a sharp, young fellow trying to establish his company.
+
+He was a techie at heart. Only that he was the smartest one I had come across. He was also very helpful and patient in educating a on-tech fellow like me on various technologies and approaches. 
+
+He was not a hush-hush kind about what he was working on in a competitive startup environment!
+
+That's the guy we want our technology team built around, I thought.
