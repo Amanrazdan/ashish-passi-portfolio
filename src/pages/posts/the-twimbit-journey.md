@@ -124,3 +124,7 @@ He was a techie at heart. Only that he was the smartest one I had come across. H
 He was not a hush-hush kind about what he was working on in a competitive startup environment!
 
 That's the guy we want our technology team built around, I thought.
+
+Where do I find someone like him?
+
+Steve Blank was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye. 
