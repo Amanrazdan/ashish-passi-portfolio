@@ -42,4 +42,14 @@ Stranger things have happened.
 
 **September 2018**
 
-Twimbit. A name to our idea emerged. Love at the first earshot!
+Twimbit. A name for our idea emerged. Love at the first earshot!
+
+The world is moved by ideas and technology. Wow. Indeed.
+
+So let's move it!
+
+What? How?
+
+Ummmm...
+
+October 2018
