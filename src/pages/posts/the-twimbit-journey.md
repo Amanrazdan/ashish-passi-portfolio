@@ -19,4 +19,11 @@ They say, be careful in what you wish for.
 
 Yeah right!
 
-An unknown man, to me, in a different part of the world, at the peak of his many professional powers, was searching for a![](/images/Pic Blog 1.jpg)
+An unknown man, to me, in a different part of the world, at the peak of his many professional powers, was searching for the next right move for him.
+
+  
+![](/images/Pic Blog 1.jpg)
+
+Manoj and I met through a common friend. Who was either having a moment of clairvoyance or vacuousness.
+
+The idea of Twimbit emerged. The name itself a little later. Love at the first earshot!
