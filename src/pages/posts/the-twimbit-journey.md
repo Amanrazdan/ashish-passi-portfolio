@@ -85,8 +85,19 @@ Disrupt LinkedIn.
 
 Bring trust back. 
 
-Jan 2018
+**Jan 2018**
 
 We thought the new year brought with her a gift of clarity.
 
-![](/images/diving-man-PZXBXH5 (1).jpg)
+![](/images/diving-man-PZXBXH5 (1).jpg)Afterall, owning your career included 3 steps:
+
+1. Manage Yourself
+   * All your career records stored in a verified digital locker
+2. Market Yourself
+
+* Have a voice into the future
+* An aspirational profile
+
+3. Develop Yourself
+   1. 360 Assessment by industry/function
+   2. Find aspirational opportunity and purpose
