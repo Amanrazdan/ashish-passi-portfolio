@@ -298,7 +298,7 @@ Crash. Boom.
 
 Doom? Not really.
 
-**Read Twimbit's 5 learning's on how to ensure security!**
+**Read Twimbit's 5 learning's on how to ensure platform security!**
 
 Sep 2019
 
