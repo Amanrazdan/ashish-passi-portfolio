@@ -196,3 +196,33 @@ May 2018
 Theme: Focus
 
 Research was always going to be our core. The explorations of the past few months taught us the value of focus and sharpness.
+
+Armed with the same intent, purpose and gusto our identity evolved to a technology company giving research. 
+
+Our motto: Bring joy back to research consumption and creation
+
+Our Vision: Power every business and every career with knowledge and technology
+
+May 6
+
+Our first full-time team member joins.
+
+She showed trust in our vision. She took a risk. She would brink her deep industry knowledge and experience shape our research agenda going forward.
+
+![](/images/pic.jpg)
+
+It was the three of us now. The canvas of innovation, creativity and customer value begging ink and color.
+
+June 2018
+
+Focus: Team
+
+To do: Sharpen our value proposition
+
+The consulting role my tech friend was playing for us needed a tweak. His own startup had to be managed while he wanted to get away from having to sustain a business. He wanted to focus on building world-class products that could solve real problems for business and people.
+
+He made the difficult decision of focusing on his passion with Twimbit and not having to worry about business numbers.
+
+We had our Chief Technology Explorer. He is a beast. He finds solutions. Any. He will challenge the status quo. He learns fast. He is the high octane fuel for the platform we want to build.
+
+The amalgamation of our experience and the innovative exuberance of youth had begun. 
