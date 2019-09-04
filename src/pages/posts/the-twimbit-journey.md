@@ -229,4 +229,10 @@ We had our Chief Technology Explorer. He is a beast. He finds solutions. Any. He
 
 The amalgamation of our experience and the innovative exuberance of youth had begun. 
 
-It was automatic for the most part. With the kind of people coming together on their own.
+5 Lessons from early stage team forming: 
+
+* Get bound by a singular vision
+* Leverage best practices from the experienced members of the team and young innovative minds to break barriers.
+* No egos. The role of each member is the value you bring to the motto.
+* Open and transparent communication
+* Constant knowledge sharing 
