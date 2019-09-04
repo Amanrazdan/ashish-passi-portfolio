@@ -73,7 +73,7 @@ This just wasn't novel or enough.
 
 Keep Looking!
 
-**Story- Lesson from the first semester!**
+**Story- Lessons from the first semester!**
 
 ![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)
 
@@ -91,7 +91,7 @@ Disrupt LinkedIn.
 
 Bring trust back.
 
-**Jan 2018**
+**Jan 2019**
 
 We thought the new year brought with her a gift of clarity.
 
@@ -113,7 +113,7 @@ Afterall, owning your career included 3 steps:
 
 Lovely, lets kick on with this now! Looks like there is meaningful business in there somewhere!
 
-**Feb 2018**
+**Feb 2019**
 
 Let's go seek!
 
@@ -141,7 +141,7 @@ People could relate with that!
 
 But that was the third part of our value proposition after a digi locker,
 
-**Mar 2018**
+**Mar 2019**
 
 The Techstar Weekend is approaching soon from the 10th-12th.
 
@@ -175,7 +175,7 @@ Lord behold, we won that weekend challenge. My tech friend displaying tremendous
 
 We brought with us the title, heaps of confidence and an acquaintance turned friend for life.
 
-**April 2018**
+**April 2019**
 
 Have we nailed it yet?
 
@@ -197,7 +197,7 @@ Lesson: Not all victories lead you in the right direction!
 
 To do: Be clear about 3 victories that matter to your business!
 
-May 2018
+May 2019
 
 Theme: Focus
 
@@ -219,7 +219,7 @@ She showed trust in our vision. She took a risk. She would brink her deep indust
 
 It was the three of us now. The canvas of innovation, creativity and customer value begging ink and color.
 
-June 2018
+June 2019
 
 Focus: Team
 
@@ -241,7 +241,7 @@ The amalgamation of our experience and the innovative exuberance of youth had be
 * Open and transparent communication
 * Constant knowledge sharing
 
-July 2018
+July 2019
 
 Theme: Sharpen your focus
 
