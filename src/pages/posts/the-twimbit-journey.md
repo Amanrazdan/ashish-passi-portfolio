@@ -217,9 +217,9 @@ It was the three of us now. The canvas of innovation, creativity and customer va
 
 June 2018
 
-Focus: Team
+Focus: Team 
 
-To do: Sharpen our value proposition
+To do: Sharpen our value proposition / www.twimbit.com 
 
 The consulting role my tech friend was playing for us needed a tweak. His own startup had to be managed while he wanted to get away from having to sustain a business. He wanted to focus on building world-class products that could solve real problems for business and people.
 
@@ -236,3 +236,72 @@ The amalgamation of our experience and the innovative exuberance of youth had be
 * No egos. The role of each member is the value you bring to the motto.
 * Open and transparent communication
 * Constant knowledge sharing 
+
+July 2018
+
+Theme: Sharpen your focus
+
+To Do: Platform development 
+
+>     Sorry. I didn't have time to write a short one.
+>     - Abrahim Lincoln at the end of a long letter to his wife.
+
+Motto: Bring Joy back in the consumption and creation of research
+
+Tech Vision: Make consumption of research very easy and exciting
+
+July 25
+
+The first version of our platform Twimbit.pro is ready as a POC
+
+July 27
+
+A sleepy wordpress app for creators is discovered. We must have done somethings right to deserve this!
+
+We were getting close to our dream of connecting the consumers and creators of research content.
+
+July 30
+
+July 27th seems ages ago. Things start creeping in and creeping out. 
+
+Lesson: Learn to manage your emotions
+
+You will be on a different ride each day.
+
+Aug 2019
+
+Focus: Platform Development / Research Framework
+
+To Do: Decoupling of enterprise account and subscriptions on the platform.
+
+Team vision.
+
+The team was being stretched.
+
+Aug 20
+
+We hit the dime. Twimbit is now 10 member strong. 4 locations.
+
+Tune your strings. Adjust your base. Learn. Play.
+
+We are working towards a symphony.
+
+Aug 22
+
+The unthinkable. Well, till it happens!
+
+We have a security breach on our platform. 
+
+Crash. Boom.
+
+Doom? Not really.
+
+**Read Twimbit's 5 learning's on how to ensure security!**
+
+Sep 2019
+
+A second candidate over the last month who chose another opportunity after accepting our offer letter.
+
+What were we doing wrong?
+
+The clarity is seeping in through the pores. The right hands to work  and partner with evade.
