@@ -93,7 +93,9 @@ Bring trust back.
 
 We thought the new year brought with her a gift of clarity.
 
-![](/images/diving-man-PZXBXH5 (1).jpg)Afterall, owning your career included 3 steps:
+![](/images/diving-man-PZXBXH5 (1).jpg)
+
+Afterall, owning your career included 3 steps:
 
 1. Manage Yourself
    * All your career records stored in a verified digital locker
@@ -102,7 +104,7 @@ We thought the new year brought with her a gift of clarity.
 * An individual web page to express yourself
 * 360 assessment to showcase your strengths
 
-3. Develop Yourself
+1. Develop Yourself
 
 * An aspirational profile
 * Find purpose in what you do
@@ -189,7 +191,7 @@ Whose there?
 
 Time. It's yours to move on!
 
-Lesson: Not all victories lead you in the right direction! 
+Lesson: Not all victories lead you in the right direction!
 
 To do: Be clear about 3 victories that matter to your business!
 
@@ -199,7 +201,7 @@ Theme: Focus
 
 Research was always going to be our core. The explorations of the past few months taught us the value of focus and sharpness.
 
-Armed with the same intent, purpose and gusto our identity evolved to a technology company giving research. 
+Armed with the same intent, purpose and gusto our identity evolved to a technology company giving research.
 
 Our motto: Bring joy back to research consumption and creation
 
@@ -217,9 +219,9 @@ It was the three of us now. The canvas of innovation, creativity and customer va
 
 June 2018
 
-Focus: Team 
+Focus: Team
 
-To do: Sharpen our value proposition / www.twimbit.com 
+To do: Sharpen our value proposition / www.twimbit.com
 
 The consulting role my tech friend was playing for us needed a tweak. His own startup had to be managed while he wanted to get away from having to sustain a business. He wanted to focus on building world-class products that could solve real problems for business and people.
 
@@ -227,21 +229,21 @@ He made the difficult decision of focusing on his passion with Twimbit and not h
 
 We had our Chief Technology Explorer. He is a beast. He finds solutions. Any. He will challenge the status quo. He learns fast. He is the high octane fuel for the platform we want to build.
 
-The amalgamation of our experience and the innovative exuberance of youth had begun. 
+The amalgamation of our experience and the innovative exuberance of youth had begun.
 
-5 Lessons from early stage team forming: 
+**Story - 5 Lessons for early stage team forming:**
 
 * Get bound by a singular vision
 * Leverage best practices from the experienced members of the team and young innovative minds to break barriers.
 * No egos. The role of each member is the value you bring to the motto.
 * Open and transparent communication
-* Constant knowledge sharing 
+* Constant knowledge sharing
 
 July 2018
 
 Theme: Sharpen your focus
 
-To Do: Platform development 
+To Do: Platform development
 
 >     Sorry. I didn't have time to write a short one.
 >     - Abrahim Lincoln at the end of a long letter to his wife.
@@ -262,7 +264,7 @@ We were getting close to our dream of connecting the consumers and creators of r
 
 July 30
 
-July 27th seems ages ago. Things start creeping in and creeping out. 
+July 27th seems ages ago. Things start creeping in and creeping out.
 
 Lesson: Learn to manage your emotions
 
@@ -292,7 +294,7 @@ Aug 22
 
 The unthinkable. Well, till it happens!
 
-We have a security breach on our platform. 
+We have a security breach on our platform.
 
 Crash. Boom.
 
