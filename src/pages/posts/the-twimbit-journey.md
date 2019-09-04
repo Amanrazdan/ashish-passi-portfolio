@@ -73,6 +73,8 @@ This just wasn't novel or enough.
 
 Keep Looking!
 
+**Story- Lesson from the first semester!**
+
 ![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)
 
 **Nov-Dec 2018**
@@ -131,7 +133,7 @@ That's the guy we want our technology team built around, I thought.
 
 Where do I find someone like him?
 
-Steve Blank was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye.
+**Steve Blank** was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye.
 
 The 'heatmap' in what prospective customers shared was the most intense around ' an aspirational profile to find your purpose'!
 
