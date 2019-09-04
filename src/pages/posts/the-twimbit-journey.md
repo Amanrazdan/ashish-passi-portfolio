@@ -268,6 +268,8 @@ Lesson: Learn to manage your emotions
 
 You will be on a different ride each day.
 
+![](/images/pic emotion.jpg)
+
 Aug 2019
 
 Focus: Platform Development / Research Framework
