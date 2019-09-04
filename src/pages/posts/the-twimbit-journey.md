@@ -108,8 +108,8 @@ Afterall, owning your career included 3 steps:
 
 1. Develop Yourself
 
-* An aspirational profile
-* Find purpose in what you do
+*  An aspirational profile
+*  Find purpose in what you do
 
 Lovely, lets kick on with this now! Looks like there is meaningful business in there somewhere!
 
