@@ -57,11 +57,11 @@ Ok. But....
 
 **October 2018**
 
-Give power back to the people. 
+Give power back to the people.
 
 Own Your Career everyone!
 
-Let's start with a blockchain enabled digital locker to help store all the verified career and education records. 
+Let's start with a blockchain enabled digital locker to help store all the verified career and education records.
 
 Help people manage themselves better to take charge of their career.
 
@@ -69,25 +69,23 @@ Noble thought people, but unfortunately you have already missed the last bus to 
 
 This just wasn't novel or enough.
 
-Keep Digging!
-
- a ekil sdnuSomkknnkjh
+Keep Looking!
 
 ![](/images/stork-on-dry-hay-bale-QZ59VAH.jpg)
 
 **Nov-Dec 2018**
 
-Our slogan to the world - Own Your Career. 
+Our slogan to the world - Own Your Career.
 
 A career built on purpose and aspiration.
 
-What's more important? 
+What's more important?
 
-What you have already done in life or what you are going to next? 
+What you have already done in life or what you are going to next?
 
 Disrupt LinkedIn.
 
-Bring trust back. 
+Bring trust back.
 
 **Jan 2018**
 
@@ -121,7 +119,7 @@ Let's go seek!
 
 In a start up incubator, where I used to work as a co-worker, I observed a sharp, young fellow trying to establish his company.
 
-He was a techie at heart. Only that he was the smartest one I had come across. He was also very helpful and patient in educating a on-tech fellow like me on various technologies and approaches. 
+He was a techie at heart. Only that he was the smartest one I had come across. He was also very helpful and patient in educating a on-tech fellow like me on various technologies and approaches.
 
 He was not a hush-hush kind about what he was working on in a competitive startup environment!
 
@@ -129,21 +127,21 @@ That's the guy we want our technology team built around, I thought.
 
 Where do I find someone like him?
 
-Steve Blank was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye. 
+Steve Blank was imploring to 'step outside the building'. I had to be focused on market validation and keep a keen eye.
 
 The 'heatmap' in what prospective customers shared was the most intense around ' an aspirational profile to find your purpose'!
 
 People could relate with that!
 
-But that was the third part of our value proposition after a digi locker, 
+But that was the third part of our value proposition after a digi locker,
 
 **Mar 2018**
 
-The Techstar Weekend is approaching soon from the 10th-12th. 
+The Techstar Weekend is approaching soon from the 10th-12th.
 
 A 60 second pitch to the community to begin with. 7 out of 35 pitches were to be shortlisted. They would team up and work on those 7 ideas for a whole weekend!
 
-I'm driving there a little harebrained. It felt normal! 
+I'm driving there a little harebrained. It felt normal!
 
 What was I going to pitch in 60 seconds?
 
@@ -161,7 +159,7 @@ Let's take a punt.
 
 From a product that was a combination of digi locker- webpage - aspirational profile - to a product that was An aspirational profile ro find true purpose and meaning in work!
 
-That had to be fit into 60 seconds. Practice while driving. 
+That had to be fit into 60 seconds. Practice while driving.
 
 My technology friend, was also here to represent his idea. It just so happened, ours was selected and his wasn't in the pruning of 35 to 7.
 
@@ -175,9 +173,9 @@ We brought with us the title, heaps of confidence and an acquaintance turned fri
 
 Have we nailed it yet?
 
-Far from it, sonny! 
+Far from it, sonny!
 
-It's a long winding path through the woods! 
+It's a long winding path through the woods!
 
 ![](/images/overgrown-boardwalk-CF2L6AN.jpg)
 
@@ -187,4 +185,14 @@ Knock! Knock!
 
 Whose there?
 
-Time.
+Time. It's yours to move on!
+
+Lesson: Not all victories lead you in the right direction! 
+
+To do: Be clear about 3 victories that matter to your business!
+
+May 2018
+
+Theme: Focus
+
+Research was always going to be our core. The explorations of the past few months taught us the value of focus and sharpness.
