@@ -11,6 +11,8 @@ excerpt: Start with the intent to change the world. Check. Bring purpose to ever
 hide_header: false
 
 ---
+Get. Set. Play.
+
 **It was July 2018.**
 
 It had been a few months of pondering. Where will the next fulfillment at work come from? What would the next wayfaring challenge replete with learning, growth and joy be!
@@ -226,3 +228,5 @@ He made the difficult decision of focusing on his passion with Twimbit and not h
 We had our Chief Technology Explorer. He is a beast. He finds solutions. Any. He will challenge the status quo. He learns fast. He is the high octane fuel for the platform we want to build.
 
 The amalgamation of our experience and the innovative exuberance of youth had begun. 
+
+It was automatic for the most part. With the kind of people coming together on their own.
